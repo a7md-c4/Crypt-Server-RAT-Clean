@@ -1,6 +1,6 @@
  <div align="center">
 
-<img src="https://i.postimg.cc/HsXxD6fV/ssssssssssss.png" width="100%">
+<img src="https://i.postimg.cc/HsXxD6fV/ssssssssssss.png" width="50%">
 
 # 🚀 فقط تابعني وستتعلم!
 
