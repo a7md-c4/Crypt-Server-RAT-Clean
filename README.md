@@ -12,6 +12,5 @@
 
 ❤️ تحياتي لكم جميعاً
 
-**A7md HaKeRR-r Tunizia** 🇹🇳
 
 </div>
